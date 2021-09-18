@@ -1,3 +1,3 @@
 # Rays Theme 
 
-More details available later
+More details available later...
